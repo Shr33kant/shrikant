@@ -25,6 +25,6 @@ _📌 More projects coming soon...
 ---
 ## 📬 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/shrikantsupekar)
+- 💼 [LinkedIn](https://www.linkedin.com/in/shr33kant)
 - 📧 sshrikant0613@gmail.com
 ------------------------------------------
